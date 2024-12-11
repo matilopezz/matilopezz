@@ -2,5 +2,5 @@
 
 ⚪🔴⚪
 
-> 📚Estudiando ultimo año de Analista en Informática en la UNSAdA
+> 📚Estudiante de Licenciatura en Informática (UNSAdA)
 
