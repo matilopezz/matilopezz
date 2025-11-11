@@ -2,5 +2,6 @@
 
 ⚪🔴⚪
 
-> 📚Estudiante de Licenciatura en Informática (UNSAdA)
+> 📚 Analista en Sistemas (UNSAdA)
+
 
